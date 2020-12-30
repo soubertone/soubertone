@@ -1,14 +1,13 @@
 # Hello Dev!
-### Welcome to my profile. ✅
- *My name is Bertone Leonardo* 🧑🏼 🇧🇷
+### Bem-vindo ao meu perfil. ✅
+ *Meu nome é Bertone Leonardo* 🧑🏼 🇧🇷
  
- Front-End stundent since 2019 💻<br>
- Computer Technician since 2020 🛠
+ Estudando desenvolvimento WEB 💻
  
 👉 [Linktr.ee]([https://linktr.ee/bertoneleonardo](https://linktr.ee/bertoneleonardo)) 👈
 
 ▶ 📍 From PR <br>
-▶ 💻 Front-End | Marketing | Designer| 
+
 <br>
 <br>
 Follow me 👇🏼<br>
