@@ -3,6 +3,7 @@
  *Meu nome é Bertone Leonardo* 🧑🏼 🇧🇷
  
  Estudando desenvolvimento WEB 💻
+ Cursando Tecnologia em Sistemas para Internet - Unicesumar
  
 👉 [Linktr.ee]([https://linktr.ee/bertoneleonardo](https://linktr.ee/bertoneleonardo)) 👈
 
