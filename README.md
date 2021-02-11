@@ -7,9 +7,9 @@
  
 👉 Redes Sociais 👈
 
-🔴 <a href="instagram.com/bertoneleonardo/">Instagram</a>
+🔴 <a href="instagram.com/bertoneleonardo/">Instagram</a><br>
 🔵 <a href="https://www.linkedin.com/in/bertone-leonardo-91161b1b2">Linkedln</a>
 
-<br><br>
+<br>
 
 ▶ 📍 From PR <br>
