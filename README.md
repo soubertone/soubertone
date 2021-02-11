@@ -5,6 +5,11 @@
  Estudando desenvolvimento WEB 💻 </br>
  Cursando Tecnologia em Sistemas para Internet - Unicesumar
  
-👉 <a href="https://linktr.ee/bertoneleonardo">Linktr.ee</a> 👈
+👉 Redes Sociais 👈
+
+🔴 <a href="instagram.com/bertoneleonardo/">Instagram</a>
+🔵 <a href="https://www.linkedin.com/in/bertone-leonardo-91161b1b2">Linkedln</a>
+
+<br><br>
 
 ▶ 📍 From PR <br>
